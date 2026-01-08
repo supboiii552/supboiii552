@@ -8,4 +8,4 @@ I am working on my own ubg website that has various games from selenite, nettlwe
 
 This was a really seroius readme i am upbeat usually i like minecraft war thunder roblox and memes. holy crap cheating in minecraft is so fun (:
 
-my dumbass district gives us ipads which are so restrictive id rather have a chromebook or something 😒🙄
+my dumbass district gives us ipads which are so restrictive id rather have a chromebook at this point 😒🙄
