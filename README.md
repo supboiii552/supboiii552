@@ -5,3 +5,5 @@ im trying to get better at coding and i only have a little experience
 professional vibe coder
 
 my dumbass district gives us ipads which are so restrictive id rather have a chromebook at this point which is a really low bar😒🙄
+
+our disctrict uses mosyle to restrict the ipads really heavily so if you have a bypass pls tell me
