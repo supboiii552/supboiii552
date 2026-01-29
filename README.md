@@ -1,13 +1,7 @@
-This is my github account which i do most things on
+welcome to my github page! i like playing games and bypassing restrictions. i fork unblocked games then host them on my website so that the school doesnt block them. i like roblox, minecraft, call of duty and war thunder. i also really like hacking in minecraft
 
-I have some coding experience and strive to get better
-
-Mostly what i do is i fork unblockers and unblocked games that are blocked for our district and deploy them to my github.io
-
-I am working on my own ubg website that has various games from selenite, nettlweb and several other websites.
-
-This was a really seroius readme i am upbeat usually i like minecraft war thunder roblox and memes. holy crap cheating in minecraft is so fun (:
-
-my dumbass district gives us ipads which are so restrictive id rather have a chromebook at this point which is a really low bar😒🙄
+im trying to get better at coding and i only have a little experience
 
 professional vibe coder
+
+my dumbass district gives us ipads which are so restrictive id rather have a chromebook at this point which is a really low bar😒🙄
