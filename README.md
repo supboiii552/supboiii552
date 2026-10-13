@@ -8,4 +8,4 @@ my dumbass district gives us ipads which are so restrictive like id rather have 
 
 our disctrict uses mosyle to restrict the ipads really heavily so if you have a bypass pls tell me
 
-stupid disctrict blocked github.io for some reason, but they didnt block github. i am in the middleof porting over all my sites and projects over to cloudflare. my new site is https://supboiii552.pages.dev
+if the discount blocks GitHub.io go to my cloudflare site i will spin up if GitHub gets blocked at https://supboiii552.github.io
